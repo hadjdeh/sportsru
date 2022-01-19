@@ -1,3 +1,3 @@
 # sportsru
 
-https://www.sports.ru/tribuna/blogs/footsci/
+https://www.sports.ru/tribuna/blogs/footsci/2985326.html
